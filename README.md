@@ -1,4 +1,4 @@
-instagram : https://www.instagram.com/xbozk0rt/                                                                                                                              
-telegram : https://t.me/ohaxbozk0rt
+iletişim :  https://www.instagram.com/xbozk0rt/                                                                                                                              
+iletişim : https://t.me/ohaxbozk0rt
 
 
