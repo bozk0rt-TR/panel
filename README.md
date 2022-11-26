@@ -1,3 +1,4 @@
-instagram : https://github.com/bozk0rt-TR                                                                                                                                 
-
+instagram : https://www.instagram.com/xbozk0rt/                                                                                                                              
 telegram : https://t.me/ohaxbozk0rt
+
+
